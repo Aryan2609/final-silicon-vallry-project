@@ -1,1 +1,1 @@
-# final-silicon-vallry-project
+# final-silicon-valley-project
